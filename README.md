@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Bad-Knight
 - 👀 I’m interested in collaborating with YOU.
 - 🌱 I’m currently learning how to contact you!
-- 💞️ I’m looking to collaborate on github coding and otherwise.
+- 💞️ I’m trying to find your address to meet up and talk business.
 - 📫 How to reach me https://www.youtube.com/watch?v=BWRCMPElO38
 
 <!---
